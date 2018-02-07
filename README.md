@@ -1,2 +1,3 @@
 # hello-world
 I'm just getting started...
+My Name is Yolanda. I am 22 years old turning 23 in May. I have an adorable pup named Sloann. I am currently working in a small CRM company as a Marketing Strategists. My goal in life is to go back to school so that I may jumpstart a career in Institutional Research. I really want to visit Seattle, WA one day. I like Grey's Anatomy, the color blue, dark chocolate, and when I'm not hurting I love running. I like to smile :)
